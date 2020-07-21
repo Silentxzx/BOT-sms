@@ -12,4 +12,5 @@ Jika ada yang gagal / bingung bagaimana menggunakannya, Silahkan kontak sya via 
 Follow sosial media aing
 
 • Instagram ( @Silentxzx_ ) 
+
 • Facebook ( Ran ) 
