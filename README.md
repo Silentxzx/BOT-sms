@@ -10,5 +10,6 @@ How to install?
 Jika ada yang gagal / bingung bagaimana menggunakannya, Silahkan kontak sya via whatsapp: 081314111828
 
 Follow sosial media aing
+
 • Instagram ( @Silentxzx_ ) 
 • Facebook ( Ran ) 
